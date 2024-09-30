@@ -1,1 +1,3 @@
 ## Hello SIBKM Java Batch 7 🔥
+
+Semangat... 
